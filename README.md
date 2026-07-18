@@ -1,3 +1,6 @@
+<p align="center">
+  <img src="project.png" alt="Voice Project Vision" width="100%">
+</p>
 # 🌐 Voice (صوت)
 ### Voice in the Global Constitution / صوت في الدستور الكوني
 
