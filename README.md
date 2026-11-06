@@ -1,4 +1,11 @@
- <p align="center">
+       
+---
+# وثيقة تأسيس محكمة العدل الكونية
+## The Founding Charter of the Court of Cosmic Justice
+
+**المؤسس والمؤلف الفكري:** صابر يوسف كريت (Shilosh Zaxo)  
+**تاريخ الإصدار:** نوفمبر 2026  
+<p align="center">
   <img src="project.png" alt="Voice Project Vision" width="100%">
 </p>
 # 🌐 Voice (صوت)
