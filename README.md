@@ -1,4 +1,4 @@
-<p align="center">
+ <p align="center">
   <img src="project.png" alt="Voice Project Vision" width="100%">
 </p>
 # 🌐 Voice (صوت)
