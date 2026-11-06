@@ -1,5 +1,32 @@
 
+---
 
+# ⚖️ THE GLOBAL MANIFESTO & ULTIMATE ACCUSATION
+## An Open Letter to the United Nations, International Organizations, and Global Media
+
+### **The Preamble of Rage and Cosmic Responsibility**
+To all centers of global decision-making, to the United Nations, to all organizations dedicated to human rights and environmental protection, and to every media outlet that shapes human consciousness:
+
+The silence with which you confront the destruction of the planet is not neutrality; it is outright complicity. Your failure to place "Cosmic Justice" at the forefront of your daily news bulletins reflects a moral decay that pushes humanity to the edge of the abyss.
+
+This document is not merely ink on paper, nor is it a passing thought; it is **"The Court of Cosmic Justice,"** rising today to place you face-to-face with your historical and moral responsibilities. It is time for international institutions to be ashamed of their repeated helplessness in the face of corporate greed and the absence of true justice.
+
+---
+
+### **Direct Cosmic Demands & Mandates**
+
+1. **To Global Media:** 
+   We demand that you fulfill your professional and ethical duty to break the wall of blackout. Let this manifesto, and these virtual and real trials of environmental crimes, be **headline news in your daily broadcasts**. We want the news to chronicle the details of these sessions every day so that the world may know justice has neither died nor vanished.
+
+2. **To the United Nations and International Organizations:** 
+   We hold you before the mirror of truth today. Your continued disregard for environmental and existential appeals means you are no longer the protectors of humanity. We warn you to take this vision with absolute seriousness and to transform the Charter of Cosmic Justice into binding commitments and decisions for nations, rather than fleeting slogans in annual reports.
+
+3. **To the Conscience of the Individual Human:** 
+   If international organizations remain silent and the media is dominated by deception, the living conscience of every free human on Earth is the final bridge. This call is open to every pen and every honorable voice to speak out until international halls resonate and sleeping consciences awaken.
+
+---
+*Issued by: Saber Youssef Krayt (Shilosh Zaxo)*
+*Official Digital Repository: rbas555zak/Voice*
 ---
 
 # ⚖️ The Founding Charter of the Court of Cosmic Justice
